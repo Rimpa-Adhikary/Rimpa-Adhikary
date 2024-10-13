@@ -1,5 +1,5 @@
 - 👀 Interested in AI/ML,Open source and Web Development
-- 🌱 I’m currently pursuing Computer Science and Business Systems from Academy of Technology
+- 🌱 I’m currently pursuing Computer Science and Business Systems from Academy of Technology(AOT)
 - 📫 How to reach me: rimpaadhikary18@gmail.com
 - ⚡ Fun fact: I'm the "Dark shadow"👤
 
